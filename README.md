@@ -248,4 +248,3 @@ The GNDEC Induction Program is more than just an orientation—it’s a transfor
 
 ## 📌 Maintained by Mukul | GNDEC Ludhiana
 
-Feel free to explore, contribute, or reach out for collaboration. This repository is a tribute to the values and vision that GNDEC instills in every student.
