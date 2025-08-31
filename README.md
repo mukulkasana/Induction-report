@@ -48,7 +48,7 @@ Principal Dr. Sehajpal shared the strategic vision and mission of GNDEC, emphasi
 ---
 
 ### 🏛️ Address by Chief Guest Mahesh Inder Grewal – *Legacy & Contribution*
-Former Cabinet Minister Mahesh Inder Grewal shared heartfelt stories about his family’s role in GNDEC’s development. His address highlighted the sacrifices and vision that laid the foundation of the college.
+Former Cabinet Minister Mr. Mahesh Inder Grewal shared heartfelt stories about his family’s role in GNDEC’s development. His address highlighted the sacrifices and vision that laid the foundation of the college.
 
 **Key Highlights:**
 - Personal anecdotes from GNDEC’s early days  
