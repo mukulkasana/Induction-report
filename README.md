@@ -41,7 +41,7 @@ Principal Dr. Sehajpal shared the strategic vision and mission of GNDEC, emphasi
 - Encouragement to think beyond academics and become changemakers
 
 **Student Takeaways:**
-- Align personal goals with institutional mission  
+- Align personal goals with institutional mission.  
 - Embrace leadership and innovation  
 - Understand the broader purpose of engineering education
 
